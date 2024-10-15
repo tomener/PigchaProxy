@@ -9,6 +9,8 @@
 
 [稳定便宜VPN](http://b.m0w.cn/3FalsO)
 
+[备用链接1](http://d.m0w.cn/wrfev5)
+
 <br/>
 
 ### 🍉🍉🍉大流量推荐、稳定、便宜
