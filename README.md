@@ -23,3 +23,5 @@
 - 无限流量  21元/月，214元/年
 
 [稳定大流量VPN](http://b.m0w.cn/gmN9Fx)
+
+支持Windows、Android、IOS、Mac OS、Linux
