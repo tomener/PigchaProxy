@@ -6,6 +6,7 @@
 - **按流量**  9.8元20G，19.8元100G，38.8元260G，**不限时永久有效**
 
 支持Windows、Android、IOS、Mac OS
+
 可以访问chatgpt.com，只需要切换到美国中转或者美国IEPL线路就可以用了
 
 [稳定便宜VPN](http://b.m0w.cn/3FalsO)
