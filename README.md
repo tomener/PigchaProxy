@@ -13,6 +13,8 @@
 
 [备用链接1](https://tinyurl.com/4r68czh8)
 
+[备用链接1](https://monojson.com/s/KXfpT)
+
 [备用链接2](http://d.m0w.cn/wrfev5)
 
 <br/>
@@ -26,6 +28,8 @@
 
 [稳定大流量VPN](http://b.m0w.cn/gmN9Fx)
 
+[备用链接1](https://monojson.com/s/BjldK)
+
 支持Windows、Android、IOS、Mac OS、Linux
 
 ### 🎉🎉🎉 不限时间流量
@@ -37,3 +41,5 @@
 1元/2G，14.9元/130G，42元/420G，69元/750G，138元/1660G
 
 [不限时间流量VPN](http://c.m0w.cn/pZ0C28)
+
+[备用链接1](https://monojson.com/s/r253v)
