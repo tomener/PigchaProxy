@@ -11,9 +11,7 @@
 
 [稳定便宜的VPN](https://urldn.com/du1Fk)
 
-[备用链接1](https://tinyurl.com/4r68czh8)   [备用链接2](https://monojson.com/s/KXfpT)
-
-[备用链接3](https://goo.su/eKhK2a6)
+[备用链接1](https://tinyurl.com/4r68czh8)   [备用链接3](https://goo.su/eKhK2a6)
 
 <br/>
 
@@ -27,7 +25,7 @@
 
 [不限时间流量VPN](https://urldn.com/-pGr-)
 
-[备用链接1](https://monojson.com/s/r253v)
+[备用链接1](https://goo.su/2OdTI)
 
 <br/>
 
@@ -37,4 +35,4 @@
 
 [稳定无限流量VPN](https://urldn.com/mS5rB)
  
-[备用链接1](https://monojson.com/s/BjldK)
+[备用链接1](https://goo.su/peLMT1)
