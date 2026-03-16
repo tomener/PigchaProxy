@@ -13,12 +13,4 @@
 
 [备用链接1](https://goo.su/eKhK2a6)  [备用链接2](https://urldn.com/du1Fk)
 
-<br/>
 
-### 🍉🍉🍉无限流量推荐
-1. 支持至少 10 人连接
-2. 动态速度 1000Mbps
-
-[稳定无限流量VPN](https://goo.su/peLMT1)
- 
-[备用链接1](https://goo.su/peLMT1)
