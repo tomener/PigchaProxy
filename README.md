@@ -14,6 +14,6 @@
 
 [备用链接1](https://goo.su/eKhK2a6) 
 
-[备用链接2](https://urldn.com/du1Fk)
+[备用链接2](https://oon.nz/r/uva)
 
 
