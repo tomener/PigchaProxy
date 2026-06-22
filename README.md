@@ -6,14 +6,14 @@
 - **按月份**  3.8元/10G/月，5.8元/45G/月，8.8元/95G/月，13.8元/210G/月，28.8元/480G/月
 - **按流量**  9.8元20G，19.8元100G，38.8元260G，**不限时永久有效**
 
-支持Windows、Android、IOS、Mac OS 
+支持Windows、Android、IOS、Mac OS
 
 可以访问chatgpt.com，只需要切换到美国中转或者美国IEPL线路就可以用了
 
-[稳定便宜的VPN](https://tinyurl.com/4r68czh8)
+[稳定便宜的VPN](https://tinyurl.com/4r68czh8?_blank)
 
-[备用链接1](https://goo.su/eKhK2a6) 
+[备用链接1](https://goo.su/eKhK2a6?_blank)
 
-[备用链接2](https://oon.nz/r/uva)
+[备用链接2](https://oon.nz/r/uva?_blank)
 
 
