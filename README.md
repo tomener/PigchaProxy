@@ -10,10 +10,10 @@
 
 可以访问chatgpt.com，只需要切换到美国中转或者美国IEPL线路就可以用了
 
-[稳定便宜的VPN](https://tinyurl.com/4r68czh8?_blank)
+[稳定便宜的VPN](https://tinyurl.com/4r68czh8)
 
-[备用链接1](https://goo.su/eKhK2a6?_blank)
+[备用链接1](https://goo.su/eKhK2a6)
 
-[备用链接2](https://oon.nz/r/uva?_blank)
+[备用链接2](https://oon.nz/r/uva)
 
 
